@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @imneverdied / オウセイブン / fydra
+👋 Hi, I’m @imneverdied / オウセイブン / fydra
